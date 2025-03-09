@@ -1,5 +1,5 @@
-# Rockland-ME-APP-Privacy-Policy
-Privacy Policy for the Rockland ME Explorer iOS APP
+# Dependable Piano Tuning Services
+Privacy Policy for the Dependable Piano Tuning Services Facebook page
 
 
 PRIVACY POLICY
